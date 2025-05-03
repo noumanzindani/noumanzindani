@@ -1,4 +1,4 @@
-##👋 Hi, I'm Nouman!
+## 👋 Hi, I'm Nouman!
 
 
 🎓 Software Engineering Student | 💻 Cross-Platform App Developer<br/>
