@@ -2,7 +2,7 @@
 
 
 🎓 Software Engineering Student | 💻 Cross-Platform App Developer<br/>
-🚀 1+ Year Experience in Flutter<br/>
+🚀 2 Year Experience in Flutter<br/>
 I make reels and post on tips and trick on [Instagram](https://www.linkedin.com/in/nouman-zindani-955111286/?originalSubdomain=pk)
 
 
